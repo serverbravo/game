@@ -8,9 +8,9 @@ All about that game, a publicly made-available manifesto.
 
 ## Sex
 
-##### Female Sexuality
+#### Female Sexuality
 
-##### Your Own Masculinity
+#### Your Own Masculinity
 
 ##  Cultivating Your Technical Know-How
 
@@ -19,7 +19,7 @@ All about that game, a publicly made-available manifesto.
   - Plus all your relative successes & reference experiences to back them up
 - 
 
-##### Books, YouTube Videos, Books & Products w/ Infield - Where To Learn From?
+#### Books, YouTube Videos, Books & Products w/ Infield - Where To Learn From?
 
 - My answer is this: NONE.
 - Surprised? 
