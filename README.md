@@ -6,7 +6,7 @@ All about that game, a publicly made-available manifesto.
 
 > So many companies to buy products from, so much dating coaches & instructors to learn from, so much concepts of game and life to learn from - yet, all of them operate on the same grey areas: The Macro Concepts, or the things that operate on the bird's eye view.
 
-> This one-page index aims for one fucking thing: **to make the world a better place by giving the next damned guy who'll stumble on this page the right things, the right tools, and the right mindsets _in getting more out of life - period_.**
+> This one-page index aims for one fucking thing: **to make the world a better place by giving you - and the next damned guy who'll stumble on this page - _the right things, the right tools, and the right mindsets in getting more out of life - period_.**
 
 ## What Is Game?
 
