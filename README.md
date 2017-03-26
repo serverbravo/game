@@ -4,7 +4,17 @@ All about that game, a publicly made-available manifesto.
 
 ## Introduction
 
-> So many companies to buy products from, so much dating coaches & instructors to learn from, so much concepts of game and life to learn from.
+> So many companies to buy products from, so much dating coaches & instructors to learn from, so much concepts of game and life to learn from - yet, all of them operate on the same grey areas: The Macro Concepts, or things that operate on the bird's eye view.
+
+## What Is Game?
+
+> 
+
+## Social
+
+#### Social Acuity
+
+#### Calibration
 
 ## Sex
 
