@@ -32,9 +32,9 @@ All about that game, a publicly made-available manifesto.
 
 > That's game in a nutshell for us. How about you, WHAT IS GAME FOR YOU?
 
-## Areas Of Life
+## The 4 Areas Of Life
 
-#### The 4 Areas Of Life
+#### Are As Follows:
 
 1. Health
 2. Wealth
@@ -42,6 +42,19 @@ All about that game, a publicly made-available manifesto.
 4. Happiness
 
 #### How Each Area Matters To You
+
+1. Health
+  - You wanna be good looking.
+  - You wanna have that sexual stamina.
+  - You don't want a limp dick when having sex.
+  - You want enough stamina to endure / sustain a great interaction w/ a girl WITHOUT getting moody.
+  - You don't want ill-fitting clothes - seriously.
+2. Wealth
+  - You wanna afford good food, good drinks.
+  - You wanna be able to swipe dat card w/o looking at the price tag.
+  - You wanna be living in a good flat.
+  - You wanna be able to take out a girl to any place you could think of - again w/o worrying about the price tag.
+  - You want the term 'price tag' stop mattering to you anymore.
 
 #### How Each Areas Matter To The People Around You
 
@@ -72,3 +85,7 @@ All about that game, a publicly made-available manifesto.
 - Surprised? 
 
 ## Girls, Hookers, Prostitutes & Escorts
+
+## Looks, Money & Status
+
+## Inner Game vs Outer Game
