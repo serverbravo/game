@@ -32,6 +32,21 @@ All about that game, a publicly made-available manifesto.
 
 > That's game in a nutshell for us. How about you, WHAT IS GAME FOR YOU?
 
+## Areas Of Life
+
+#### The 4 Areas Of Life
+
+1. Health
+2. Wealth
+3. Relationships
+4. Happiness
+
+#### How Each Area Matters To You
+
+#### How Each Areas Matter To The People Around You
+
+#### How Each Areas Matter With Each Other
+
 ## Social
 
 #### Social Acuity
