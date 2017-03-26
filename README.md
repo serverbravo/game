@@ -4,11 +4,20 @@ All about that game, a publicly made-available manifesto.
 
 ## Introduction
 
-> So many companies to buy products from, so much dating coaches & instructors to learn from, so much concepts of game and life to learn from - yet, all of them operate on the same grey areas: The Macro Concepts, or things that operate on the bird's eye view.
+> So many companies to buy products from, so much dating coaches & instructors to learn from, so much concepts of game and life to learn from - yet, all of them operate on the same grey areas: The Macro Concepts, or the things that operate on the bird's eye view.
 
 ## What Is Game?
 
-> 
+#### A Definition
+
+> Simply put, 'having game' or 'knowing how to game' is stereotypically depicted as being able to dive into a great interaction with a good looking girl of your standards, and rightafter magically end up sleeping with each other - carrying too the possible outcome of having a great, fun & meaningful relationship with each other in the long run.
+
+> **However, we would like to define 'having game' as being an invariably effective guy who handles his health, wealth, relationships & happiness with grit & efficiency.** This means a guy who got game for us is someone who doesn't miss out on the good things in life, for the most part of his lifetime at least.
+
+#### A Perspective
+
+#### An Approach To Life
+
 
 ## Social
 
