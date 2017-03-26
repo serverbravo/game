@@ -28,7 +28,7 @@ All about that game, a publicly made-available manifesto.
 
 > Finally, yes - and this final point is actually a home-run.
 
-> We having game means living most of your days being proactive instead of passive, of being a man who makes decisions and takes the right actions instead of reacting and just settling with mediocrity, of being convicted by the fact that right here, right now is your fucking lifetime ticking by the minute - and that the only thing that matters now is getting more out of this fleeting thing you call 'life', and (hopefully) being able to give back too towards the other generations including your love ones.
+> For god's sake, having game for us means living most of your days being proactive instead of passive, of being a man who makes decisions and takes the right actions instead of reacting and just settling with mediocrity, of being convicted by the fact that right here, right now is your fucking lifetime ticking by the minute - and that the only thing that matters now is getting more out of this fleeting thing you call 'life', and (hopefully) being able to give back too towards the other generations including your love ones.
 
 > That's game in a nutshell for us. How about you, WHAT IS GAME FOR YOU?
 
